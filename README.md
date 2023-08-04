@@ -5,6 +5,10 @@ https://github.com/Manu-ESD/manufac_app/assets/124464914/d426e236-3475-403a-92b9
 
 
 
+I have compressed this video! please download the vedio from REPO for good quality
+
+https://github.com/Manu-ESD/manufac_app/assets/124464914/6ad7b562-a70b-47a7-a5f7-217ad3e9ec90
+
 
 
 
