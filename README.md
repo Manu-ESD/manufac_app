@@ -1,9 +1,14 @@
+
+
+
+https://github.com/Manu-ESD/manufac_app/assets/124464914/d426e236-3475-403a-92b9-e50cfceeef8b
+
+
+
+
+
+
 <img width="960" alt="image" src="https://github.com/Manu-ESD/manufac_app/assets/124464914/8127041b-95c8-4614-8505-0871cc6d12c7">
-
-
-
-
-
 
 
 # Getting Started with Create React App
